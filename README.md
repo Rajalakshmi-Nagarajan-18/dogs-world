@@ -4,7 +4,7 @@
 
 - 🔭 I’m currently working on **Dogs world**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:nrajinagaraj@gmail.com</h3>
 <p align="left">
 </p>
 
